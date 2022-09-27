@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @muhammaddjan
+- 👋 Hi, I’m Muhammadjon (@muhammaddjan)
 - 👀 I’m interested in learning new features
 - 🌱 I’m currently learning how to life
 
